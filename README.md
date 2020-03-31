@@ -1,3 +1,1 @@
-# justnjag
-gay
-really gay
+кодим
